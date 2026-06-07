@@ -23,6 +23,7 @@ $${\color{#ffc44c}a \space teenager \space born \space on \space the \space day 
   <img width="20" height="20" alt="IMG_2505" src="https://github.com/user-attachments/assets/c151ab6a-8847-4211-b033-9f297b1ddcf3" />
 
 <br> <sup> [ata](https://rylandgrace.atabook.org/)
+[pronoun.page](https://en.pronouns.page/@artisticfailure)
 
 <details>
 </sub><summary>totally NOT the entire phm movie and NOT the entire audiobook</summary><h5 align="center">
