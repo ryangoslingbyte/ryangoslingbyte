@@ -24,6 +24,7 @@ $${\color{#ffc44c}a \space teenager \space born \space on \space the \space day 
 
 <br> <sup> [ata](https://rylandgrace.atabook.org/)
 [pronoun.page](https://en.pronouns.page/@artisticfailure)
+[strawpage](https://crackersinfos.straw.page/)
 
 <details>
 </sub><summary>totally NOT the entire phm movie and NOT the entire audiobook</summary><h5 align="center">
